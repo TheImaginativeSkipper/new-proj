@@ -7,8 +7,6 @@ a new project
 
 `nothing important here`
 
-``` why look at programs
-when you can watch
-dank memes```
+`why look at programs when you can watch dank memes`
 
 #######s
